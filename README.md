@@ -1,1 +1,1 @@
-[{"نام رمان":"عروس سفارشی","نویسنده":"مریم افروغ","ژانر":"تخیلی، عاشقانه","لینک دانلود":"https://s16.picofile.com/d/8414813342/21a5a4b3-93f1-43cc-98a5-4afe0ce45b81/aruse_sefareshi_www_ketabesabz_com_.pdf","لینک عکس":"https://s17.picofile.com/file/8414812618/3878234235319196.jpg"}]
+[{"نام رمان":"عروس سفارشی","نویسنده":"مریم افروغ","ژانر":"تخیلی، عاشقانه","لینک دانلود":"https://s16.picofile.com/d/8414813342/21a5a4b3-93f1-43cc-98a5-4afe0ce45b81/aruse_sefareshi_www_ketabesabz_com_.pdf","لینک عکس":"https://uupload.ir/files/bc95_3878234235319196.jpg"}]
